@@ -5,7 +5,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=sharmajik&label=Profile%20views&color=0e75b6&style=flat" alt="sharmajik" /> </p>
 
-- 📫 How to reach me **skunjan845@gmai.com**
+- 📫 How to reach me **skunjan845@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1V4ORgbCVC_ju5GsnQ4gtMTiJz4GjDyWy/view?usp=drivesdk](https://drive.google.com/file/d/1V4ORgbCVC_ju5GsnQ4gtMTiJz4GjDyWy/view?usp=drivesdk)
 
