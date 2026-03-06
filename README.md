@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **skunjan845@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1V4ORgbCVC_ju5GsnQ4gtMTiJz4GjDyWy/view?usp=drivesdk](https://drive.google.com/file/d/1V4ORgbCVC_ju5GsnQ4gtMTiJz4GjDyWy/view?usp=drivesdk)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1V4ORgbCVC_ju5GsnQ4gtMTiJz4GjDyWy/view?usp=drivesdk](https://drive.google.com/file/d/1uYDSafiO0joIrczZzsVgjZAob6rZJiIW/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
